@@ -1,6 +1,0 @@
-zjdgfiuvo;bakfv
-skalbevih
-sdvmnaILBvils
-'vcaeibvioajvjkiaLEv
-svnaeifevbgie
-vaidbrohu
